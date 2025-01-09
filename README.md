@@ -23,7 +23,7 @@ Simplifying Cross-Chain Trading with @Goku_Hub - Starknet Lazarus Pit Ep 15 - No
 Save & Invest Smartly on Starknet With Bountive - Starknet Lazarus Pit Ep 16 - Dec 12th
 
 ## Season 03 | 2025
-Coming Soon
+Inspired by Starktrade - Starknet Lazarus Pit Ep 17 - Jan 16th
 
 
 
