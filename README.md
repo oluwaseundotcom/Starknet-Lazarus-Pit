@@ -23,7 +23,10 @@ Welcome to the Starknet Lazarus Pit, a Twitter Space dedicated to reviving and s
 + Save & Invest Smartly on Starknet With Bountive - Starknet Lazarus Pit Ep 16 - Dec 12th
 
 ## Season 03 | 2025
-+ Inspired by Stark-trade - Starknet Lazarus Pit Ep 17 - Jan 16th
++ Starknet & Telegram Unite with Starktrade - Starknet Lazarus Pit Ep 17- Jan 16th
++ ep 18
++ Unlocking the Power of Yield Trading with Metronome - Starknet Lazarus Pit Ep 19
+
 
 
 
